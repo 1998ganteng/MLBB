@@ -1,1 +1,1 @@
-efect recall mlbb
+hanya untuk hiburan
