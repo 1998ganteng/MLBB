@@ -1,3 +1,3 @@
-###### <p align="center">Simpel tools<p align="right">
+###### <p align="center">hanya untuk hiburan<p align="right">
 
 ## download file zipnya
